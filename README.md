@@ -1,4 +1,4 @@
-**Customer/Kunde Support Berlin Mixer (ios/android app)**
+**Customer/Kunden Support Berlin Mixer (ios/android app)**
 
 **Contact Me [EN]**
 
